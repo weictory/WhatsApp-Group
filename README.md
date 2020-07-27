@@ -1,4 +1,4 @@
-                                    # WhatsApp-Group
+                                   WhatsApp-Group
                                     
 
                              IGCSE Groups
@@ -22,9 +22,9 @@ ICT:- <https://chat.whatsapp.com/GWvkIcCRTbXEW87JiIHHCv>
 
 Computer Science:- <https://chat.whatsapp.com/Ipag91odjq7AsK2ySaoR43>
 
-Coordinated Science:-< https://chat.whatsapp.com/GdtBoZCqiOZ3vXuCu9Svt6>
+Coordinated Science:- <https://chat.whatsapp.com/GdtBoZCqiOZ3vXuCu9Svt6>
 
-French:-< https://chat.whatsapp.com/F4MWhr2dqbGG2EhIWijJ6g>
+French:- <https://chat.whatsapp.com/F4MWhr2dqbGG2EhIWijJ6g>
 
 
                      AS Level Groups
@@ -36,7 +36,7 @@ Chemistry:- <https://chat.whatsapp.com/JnRCP5WLT7J6G6KeC3tEry>
 
 Biology:- <https://chat.whatsapp.com/GTzq4DCVD6F0pa9USb03FP>
 
-Mathematics:- < https://chat.whatsapp.com/LDQ6RmG51xpASKqwYJZxHW>
+Mathematics:- <https://chat.whatsapp.com/LDQ6RmG51xpASKqwYJZxHW>
 
 Economics:- <https://chat.whatsapp.com/HDvt2MybZuQIKDhxuUSyMF>
 
@@ -103,7 +103,7 @@ Psychology HL:- <https://chat.whatsapp.com/KxViNLJ0CyrCP97AhZvQpS>
 
 Psychology SL:- <https://chat.whatsapp.com/HkEZqfGIN2DDWfh9SGRZ7U>
 
-ITGS HL:-< https://chat.whatsapp.com/JobH0NDfzSIE74rlhRAyVj>
+ITGS HL:-<https://chat.whatsapp.com/JobH0NDfzSIE74rlhRAyVj>
 
 ITGS SL:- <https://chat.whatsapp.com/JUkihhhR0r2EFSqeNuvdD6>
 
