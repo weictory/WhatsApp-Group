@@ -1,4 +1,6 @@
-
+@settings {
+  font-size: 100;
+}
                                     
                       IGCSE Groups
                              
