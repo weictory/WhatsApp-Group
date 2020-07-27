@@ -1,6 +1,9 @@
                                     ## WhatsApp-Group
+                                    
 
                              #IGCSE Groups
+                             
+                             
 Physics :- <https://chat.whatsapp.com/GeZucyDQuRA7YTPfIjasKd>
 
 Mathematics :- <https://chat.whatsapp.com/EdEzQOiPK4C7faDenQtnNd>
@@ -25,6 +28,8 @@ French:-< https://chat.whatsapp.com/F4MWhr2dqbGG2EhIWijJ6g>
 
 
                      #AS Level Groups
+                     
+                     
 Physics:- <https://chat.whatsapp.com/KwBE1VLxYaDH8F2rndysdG>
 
 Chemistry:- <https://chat.whatsapp.com/JnRCP5WLT7J6G6KeC3tEry>
@@ -43,6 +48,8 @@ Computer Science:- <https://chat.whatsapp.com/EavyCxkqTnJKo7mSChUMcT>
                                       
                                       
                              #A Level
+                             
+                             
 Mathematics:- <https://chat.whatsapp.com/HXrKxFKtElj2jyGy85xb5i>
 
 Physics:- <https://chat.whatsapp.com/FeEckQl7PMX0Le4F4I3vl1>
@@ -64,6 +71,8 @@ Business Studies :- <https://chat.whatsapp.com/IUnwUEjILgBIJt3YhfIni4>
 
 
                                #IBDP
+                               
+                               
 Biology HL - <https://chat.whatsapp.com/GxJYV1GO94O8ddBibOppGD>
 
  Math HL(A&I):- <https://chat.whatsapp.com/IrKXrMyqRda3MpAdQiB2Ef>
@@ -82,9 +91,9 @@ Chemistry HL:- <https://chat.whatsapp.com/GWMeeeiL1Qt5vL7fpEDhpx>
 
 Chemistry SL:- <https://chat.whatsapp.com/BitLxaa8924HAKBntv8EUj>
 
-Business Management HL:-< https://chat.whatsapp.com/GXsrFvAVcdbJMCzofOViBl>
+Business Management HL:- <https://chat.whatsapp.com/GXsrFvAVcdbJMCzofOViBl>
 
-Business Management SL:-< https://chat.whatsapp.com/Cfp8EQOAtugE9Lmn4c8l2Q>
+Business Management SL:- <https://chat.whatsapp.com/Cfp8EQOAtugE9Lmn4c8l2Q>
 
 Economics HL:- <https://chat.whatsapp.com/CqNEZlebKGw89nliwbxvB8>
 
@@ -107,6 +116,8 @@ French Ab Initio:- <https://chat.whatsapp.com/GSXdgjGaGVvAvY50u2sbD1>
 
 
                                 #Advanced Placement(AP)
+                                
+                                
 AP Physics 1:Algebra :- <https://chat.whatsapp.com/IQVyHkF0y4QB72qc78lBOi>
 
 AP Physics 2 : Algebra :- <https://chat.whatsapp.com/JyydHeLo5eF39qpZ7YkqDc>
