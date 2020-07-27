@@ -44,7 +44,7 @@ French:- <https://chat.whatsapp.com/G83x62al6u47b5tCxTO00B>
 Computer Science:- <https://chat.whatsapp.com/EavyCxkqTnJKo7mSChUMcT>
                                       
                                       
-  ## A Level
+  ## A Level Groups
                              
                              
 Mathematics:- <https://chat.whatsapp.com/HXrKxFKtElj2jyGy85xb5i>
@@ -66,7 +66,7 @@ Economics :- <https://chat.whatsapp.com/Gd4BFVigkwyKuy7RPm61sa>
 Business Studies :- <https://chat.whatsapp.com/IUnwUEjILgBIJt3YhfIni4>
 
 
-## IBDP
+## IBDP Groups
                                
                                
 Biology HL - <https://chat.whatsapp.com/GxJYV1GO94O8ddBibOppGD>
@@ -111,7 +111,7 @@ French Ab Initio:- <https://chat.whatsapp.com/GSXdgjGaGVvAvY50u2sbD1>
 
 
 
-## Advanced Placement(AP)
+## Advanced Placement(AP) Groups
                                 
                                 
 AP Physics 1:Algebra :- <https://chat.whatsapp.com/IQVyHkF0y4QB72qc78lBOi>
